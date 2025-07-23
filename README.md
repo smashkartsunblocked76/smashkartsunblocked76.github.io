@@ -1,1 +1,1 @@
-Experience the ultimate gaming thrill with Basket Random! Play directly in your browser, enjoy fullscreen mode, and immerse yourself in uninterrupted gameplay – completely ad-free. Dive into the adventure today!
+Smash Karts is a 3D multiplayer IO kart battle game. Drive your go-kart, pick up weapons, and blow up other karts to win! Keep playing to level up and unlock new characters and prizes.
